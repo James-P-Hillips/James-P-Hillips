@@ -1,2 +1,1 @@
-im simply goated with the sauce.
-![sly-sly-cooper](https://github.com/user-attachments/assets/7f43b7f8-8243-4148-b45a-80956c13db3c)
+![sly-cooper-sly](https://github.com/user-attachments/assets/2323c211-2600-4127-b623-e27e455374db)
