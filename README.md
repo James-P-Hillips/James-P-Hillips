@@ -1,1 +1,1 @@
-![sly-cooper-sly](https://github.com/user-attachments/assets/2323c211-2600-4127-b623-e27e455374db)
+![sly-cooper-sly](https://github.com/user-attachments/assets/cc5478b3-17df-41b6-8170-048ff13287ac)
